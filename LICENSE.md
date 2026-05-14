@@ -1,4 +1,4 @@
-# 
+# nft arbitrage bot vip Bot - floor-sweeping and whitelist-bypass is the best nft arbitrage bot, featuring floor-sweeping and whitelist-bypass. Fast, smart, and optimized for NFT
 
 
 
